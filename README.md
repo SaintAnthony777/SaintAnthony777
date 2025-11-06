@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working on various games<br>Dark souls speedruner<br>Godoing everything
+Working on various games<br>Dark souls speedruner<br>Godoing everything<br>hollow knight silksong
 
 
 ## 🌐 Socials:
